@@ -46,7 +46,7 @@ Feel free to connect with me!
 
 - **GitHub:** [ramcharanreddy267](https://github.com/ramcharanreddy267)
 - **LinkedIn:** [Patlola Ramcharan Reddy](https://www.linkedin.com/in/patlola-ramcharan-reddy-300429367/?trk=opento_sprofile_details)
-- **Email:** [Ramcharanreddy267@gmail.com](mailto:your-email@example.com)
+- **Email:** [Ramcharanreddy267@gmail.com](mailto:Ramcharanreddy267@gmail.com)
 
 ---
 
